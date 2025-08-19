@@ -11,13 +11,30 @@ i know the following languages:
 > [!WARNING]
 > for java, i'm still learning so i'm not as experienced compared to my other languages ✨
 
-i'm what you'd consider a "nerd" and just love STEM related things!! i aspire to be a computer science major at UCLA or UC Berkeley! i'm the president of the environmental club. i'm the business lead of the robotics club. as well as, i'm the current executive assistant of [Division 16 West](https://www.instagram.com/d16wkeyclub/?hl=en) for California, Nevada-Hawai'i District of Key Club International. finally, i'm also a member of the [thirst project](https://thirstproject.org/) committee for the California Nevada-Hawai'i District of Key Club International!!
+i'm what you'd consider a "nerd" and just love STEM related things!! i aspire to be a computer science major at UCLA or UC Berkeley! i'm the president of the environmental club. i'm the business lead of the robotics club. as well as, i'm the current executive assistant of [Division 16 West](https://www.instagram.com/d16wkeyclub/?hl=en) for California, Nevada-Hawai'i District of Key Club International. finally, i'm also a member of the [thirst project](https://thirstproject.org/) committee for the California Nevada-Hawai'i District of Key Club International!! 
+
+i also really love learning about the various different cultures of the world and the foods that come with it.
+
+<img width="236" height="384" alt="image" src="https://github.com/user-attachments/assets/49b86214-48fe-4145-94d6-bc2f6358628e" />
 
 
+<img width="236" height="384" alt="image" src="https://github.com/user-attachments/assets/326eb0d8-db2c-4e0b-9f55-3fef2287fb8e" />
+
+---
+
+fav shows/recents:
 
 <img width="100" height="300" alt="image" src="https://github.com/user-attachments/assets/6614071a-f345-4bf6-80d2-e0bdceb01ee6" /> 
 
 <img width="100" height="200" alt="image" src="https://github.com/user-attachments/assets/020a910a-2f15-4d66-a2c1-1c762f9f93f8" /> 
+
+<img width="100" height="200" alt="image" src="https://github.com/user-attachments/assets/3713eecb-316d-43eb-bcba-1462577d50b8" />
+
+<img width="100" height="400" alt="image" src="https://github.com/user-attachments/assets/c4ed0284-17ef-4091-ac14-12ba034725d4" />
+
+<img width="100" height="200" alt="image" src="https://github.com/user-attachments/assets/c4b42617-8c06-4877-bcc1-fac4fd4a4037" />
+
+
 
 my favorite book is [scythe](https://www.goodreads.com/book/show/28954189-scythe) by [neal shusterman](https://www.goodreads.com/author/show/19564.Neal_Shusterman)! i 10/10 recommend if you like thrillers. 🗡️  
 my favorite anime of all time is [the apothercary diaries](https://www.crunchyroll.com/series/G3KHEVDJ7/the-apothecary-diaries). nevertheless, i love animes of all times especially romance comedy. 🌿 
