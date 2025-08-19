@@ -11,6 +11,10 @@ i know the following languages:
 > [!WARNING]
 > for java, i'm still learning so i'm not as experienced compared to my other languages ✨
 
+i'm what you'd consider a "nerd" and just love STEM related things!! i aspire to be a computer science major at UCLA or UC Berkeley! i'm the president of the environmental club. i'm the business lead of the robotics club. as well as, i'm the current executive assistant of [Division 16 West](https://www.instagram.com/d16wkeyclub/?hl=en) for California, Nevada-Hawai'i District of Key Club International. finally, i'm also a member of the [thirst project](https://thirstproject.org/) committee for the California Nevada-Hawai'i District of Key Club International!!
+
+
+
 <img width="100" height="300" alt="image" src="https://github.com/user-attachments/assets/6614071a-f345-4bf6-80d2-e0bdceb01ee6" /> 
 
 <img width="100" height="200" alt="image" src="https://github.com/user-attachments/assets/020a910a-2f15-4d66-a2c1-1c762f9f93f8" /> 
@@ -25,5 +29,13 @@ now playing <b>Flight 22</b> by _Kali Uchis_ <img width="15" height="16" alt="im
 ## apcsa junior year checklist 🦋
 
 - [x] first day of school
+- [x] have a cool github about me
 - [ ] pass ap comp sci a with a 3 or above
 - [ ] graduate
+
+-- 
+
+farewell for now~
+
+![a61044e8937b9d23842f6ab4431a8187](https://github.com/user-attachments/assets/0358a865-5ece-4cdb-afac-23a524e9961e)
+
